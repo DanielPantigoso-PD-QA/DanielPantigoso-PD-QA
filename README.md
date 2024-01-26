@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Daniel Pantigoso. This account is *ONLY* for 🐼PD-QA work purposes.
+- 📫 Reach me via my work e-mail or via Slack as 'Panti'.
+- ⚡ Fun fact: I'm not fun.
